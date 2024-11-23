@@ -1,8 +1,8 @@
 Get Ready for a Knockout Night: Goodwin Boxing Presents the Ultimate Fight Extravaganza! Ladies and gentlemen, mark your calendars and prepare to be blown away by the electrifying and action-packed evening that awaits you! Goodwin Boxing, a name synonymous with top-tier boxing promotions, is back i to bring you an unforgettable professional boxing show that promises to be an adrenaline-fueled spectacle!
 
-Live ::: https://bestones.icu/gbfightseries/
+Live ::: <a href="https://affcpatrk.com/link?id=66a8baafcaf34cb566d6c11f&aff_sub3=GB%20Fight%20Series%2030">https://bestones.icu/gbfightseries/</a>
 
-Live ::: https://bestones.icu/gbfightseries/
+Live ::: <a href="https://affcpatrk.com/link?id=66a8baafcaf34cb566d6c11f&aff_sub3=GB%20Fight%20Series%2030">https://bestones.icu/gbfightseries/</a>
 
 
 Witness the Best up and coming talent in British Boxing
